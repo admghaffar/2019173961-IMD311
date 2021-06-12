@@ -1,6 +1,6 @@
 Assalamualaikum Sir Firdaus,
 
-In order for Sir Firdaus to view the raw material, Sir may have to extract the ZIP file. I were very sorry if it causes inconvenience to Sir.
+In order for Sir Firdaus to view the raw material, Sir may have to extract the ZIP file. I am very sorry if it causes inconvenience to Sir.
 
 In the ZIP files, there have a complete personal website files which I have working in making this IMD311 individual website project.
 
