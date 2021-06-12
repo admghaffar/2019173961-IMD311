@@ -6,4 +6,4 @@ In the ZIP files, there have a complete personal website files which I have work
 
 Furthermore, may Sir Firdaus be endowed with good health and emotions to check all our work.
 
-Thank you for teaching us from scratch on HTML & CSS language that I and my classmates can implement this knowledge in the industry on the future jobscope.
+Thank you for teaching us from scratch on HTML & CSS language which me and my classmates can implement this knowledge in the industry on the future jobscope.
